@@ -1,1 +1,1 @@
-# daehyeok0618.github.io.
+# daehyeok0618.github.io
